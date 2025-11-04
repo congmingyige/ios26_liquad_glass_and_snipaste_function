@@ -1,4 +1,3 @@
-Looking for a job, please contact(1249591860@qq.com).
 
 <img width="3200" height="1800" alt="ios26_liquad_glass_snipaste_Page4" src="https://github.com/user-attachments/assets/e2fa93bc-3aab-4daa-8ac8-b308a9ddce7f" />
 <img width="3200" height="1800" alt="ios26_liquad_glass_snipaste_Page5" src="https://github.com/user-attachments/assets/190971fd-cc7e-49f8-beb8-768bb1d13266" />
